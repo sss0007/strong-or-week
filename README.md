@@ -1,0 +1,1 @@
+# strong-or-week
